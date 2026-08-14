@@ -4,4 +4,4 @@ Anthers is a non-profit creative garden for everyone: a place for videos, games,
 
 No ads, ever. No shareholders, ever. Just freedom to see and be seen, to listen and be heard, and to understand and be understood.
 
-Let's grow: anthers.org
+Let's grow: [anthers.org](https://anthers.org)
